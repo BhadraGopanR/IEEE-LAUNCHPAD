@@ -2,13 +2,15 @@
 
 ### About Me
 
-I'm an Electronics and Communication Engineering student with a strong passion for technology, design,
-and hands-on innovation. I love exploring new ideas, solving real-world problems, and collaborating with others who share a drive for creativity and impact.
+I'm an Electronics and Communication Engineering student with a strong passion for technology, design,and hands-on innovation. 
+I love exploring new ideas, solving real-world problems, and collaborating with others who share a drive for creativity and impact.
+My hobbies are dancing,writing movie scripts and travelling.I worked as a volunteer in thrift which was conducted last year in our college.
+I am also a person interested in leading team works,especially including all colleagues together,giving equal responsibilities to each of them.
 
 
 
 #### Leadership and Influence: 
-Currently I am not on the leaderboard of IEDC or IEEE.
+I have no leadership experience after coming to this college.
 
 
 #### Networking:
