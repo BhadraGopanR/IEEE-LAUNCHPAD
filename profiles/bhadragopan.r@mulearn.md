@@ -1,5 +1,4 @@
-# Full Name:
-Bhadra Gopan.R
+# Bhadra Gopan.R
 
 ### About Me
 
